@@ -1,2 +1,0 @@
-# andinoart
-Ar obras andinoart
